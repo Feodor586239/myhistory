@@ -1,1 +1,1 @@
-Shakespeare wrote his renowned play "Romeo and Juliet" around 1595.
+The Cuban Revolution in 1959 brought Fidel Castro to power in Cuba.
