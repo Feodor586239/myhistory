@@ -1,1 +1,1 @@
-The Cuban Revolution in 1959 brought Fidel Castro to power in Cuba.
+The Arab Spring, a wave of protests and uprisings, began in late 2010.
