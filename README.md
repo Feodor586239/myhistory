@@ -1,1 +1,1 @@
-Ferdinand Magellan's expedition circumnavigated the globe between 1519 and 1522.
+The ancient city of Babylon, famous for the Hanging Gardens, thrived around 1800 BC.
