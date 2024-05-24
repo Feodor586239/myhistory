@@ -1,1 +1,1 @@
-Shakespeare wrote his renowned play "Romeo and Juliet" around 1595.
+Nelson Mandela became South Africa's first black president in 1994, ending decades of apartheid rule.
