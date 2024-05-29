@@ -1,1 +1,1 @@
-The COVID-19 pandemic, caused by the novel coronavirus, emerged in late 2019 and led to a global health crisis.
+The invention of the steam engine by James Watt in 1769 paved the way for mechanized transportation and industry.
