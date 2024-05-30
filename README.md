@@ -1,1 +1,1 @@
-The invention of the steam engine by James Watt in 1769 paved the way for mechanized transportation and industry.
+The Korean War, fought from 1950 to 1953, ended in an armistice, leaving the Korean Peninsula divided into North and South Korea.
