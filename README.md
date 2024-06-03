@@ -1,1 +1,1 @@
-The Magna Carta, signed in 1215, limited the power of the English monarchy and laid the groundwork for modern constitutional law.
+The Korean War, fought from 1950 to 1953, ended in an armistice, leaving the Korean Peninsula divided into North and South Korea.
