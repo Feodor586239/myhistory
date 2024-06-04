@@ -1,1 +1,1 @@
-The Korean War, fought from 1950 to 1953, ended in an armistice, leaving the Korean Peninsula divided into North and South Korea.
+Nelson Mandela became South Africa's first black president in 1994, ending decades of apartheid rule.
