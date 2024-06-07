@@ -1,1 +1,1 @@
-The Treaty of Versailles, signed in 1919, formally ended World War I and imposed heavy penalties on Germany.
+The Cuban Missile Crisis in 1962 brought the world to the brink of nuclear war between the United States and the Soviet Union.
