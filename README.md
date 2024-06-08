@@ -1,1 +1,1 @@
-The Cuban Missile Crisis in 1962 brought the world to the brink of nuclear war between the United States and the Soviet Union.
+The Chernobyl nuclear disaster in 1986, one of the worst nuclear accidents in history, had far-reaching environmental and health consequences.
