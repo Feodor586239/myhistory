@@ -1,1 +1,1 @@
-The COVID-19 pandemic, caused by the novel coronavirus, emerged in late 2019 and led to a global health crisis.
+The Hundred Years' War between England and France lasted from 1337 to 1453.
