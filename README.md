@@ -1,1 +1,1 @@
-The Hundred Years' War between England and France lasted from 1337 to 1453.
+The Chernobyl nuclear disaster in 1986, one of the worst nuclear accidents in history, had far-reaching environmental and health consequences.
