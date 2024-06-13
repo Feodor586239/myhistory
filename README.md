@@ -1,1 +1,1 @@
-The Chernobyl nuclear disaster in 1986, one of the worst nuclear accidents in history, had far-reaching environmental and health consequences.
+The dropping of atomic bombs on Hiroshima and Nagasaki in 1945 marked the end of World War II.
