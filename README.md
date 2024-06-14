@@ -1,1 +1,1 @@
-The dropping of atomic bombs on Hiroshima and Nagasaki in 1945 marked the end of World War II.
+Brexit, the United Kingdom's withdrawal from the European Union, was officially completed on January 31, 2020.
