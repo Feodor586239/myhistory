@@ -1,1 +1,1 @@
-Brexit, the United Kingdom's withdrawal from the European Union, was officially completed on January 31, 2020.
+The Vietnam War, spanning from 1955 to 1975, was a major conflict of the Cold War era.
