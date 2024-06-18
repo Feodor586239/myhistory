@@ -1,1 +1,1 @@
-The Luddite movement, opposing industrialization, emerged in England in the early 19th century.
+The dropping of atomic bombs on Hiroshima and Nagasaki in 1945 marked the end of World War II.
