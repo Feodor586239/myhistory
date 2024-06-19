@@ -1,1 +1,1 @@
-The dropping of atomic bombs on Hiroshima and Nagasaki in 1945 marked the end of World War II.
+The first modern Olympics were held in Athens, Greece, in 1896.
