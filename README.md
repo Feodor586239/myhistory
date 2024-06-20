@@ -1,1 +1,1 @@
-The first modern Olympics were held in Athens, Greece, in 1896.
+The invention of the telescope by Galileo Galilei in the early 17th century revolutionized astronomy.
