@@ -1,1 +1,1 @@
-The September 11 attacks in 2001 reshaped global politics and led to the War on Terror. 
+The Viking explorer Leif Erikson is believed to have reached North America around the year 1000, predating Christopher Columbus.
