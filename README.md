@@ -1,1 +1,1 @@
-The Viking explorer Leif Erikson is believed to have reached North America around the year 1000, predating Christopher Columbus.
+The Black Death, one of the deadliest pandemics in human history, peaked in Europe between 1347 and 1351.
