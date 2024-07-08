@@ -1,1 +1,1 @@
-The invention of the movable-type printing press by Johannes Gutenberg around 1440 revolutionized the spread of information in Europe.
+Michelangelo completed the ceiling of the Sistine Chapel in 1512.
