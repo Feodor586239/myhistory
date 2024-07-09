@@ -1,1 +1,1 @@
-Michelangelo completed the ceiling of the Sistine Chapel in 1512.
+The Treaty of Versailles, signed in 1919, formally ended World War I and imposed heavy penalties on Germany.
