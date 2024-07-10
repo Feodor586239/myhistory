@@ -1,1 +1,1 @@
-The Treaty of Versailles, signed in 1919, formally ended World War I and imposed heavy penalties on Germany.
+The Space Race between the USA and the USSR culminated with the Apollo 11 moon landing in 1969.
