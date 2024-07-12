@@ -1,1 +1,1 @@
-The Space Race between the USA and the USSR culminated with the Apollo 11 moon landing in 1969.
+The Crusades, a series of religious wars, took place between the 11th and 13th centuries.
