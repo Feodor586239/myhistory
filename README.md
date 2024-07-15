@@ -1,1 +1,1 @@
-The Crusades, a series of religious wars, took place between the 11th and 13th centuries.
+The Magna Carta, signed in 1215, limited the power of the English monarchy and laid the groundwork for modern constitutional law.
