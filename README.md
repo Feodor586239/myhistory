@@ -1,1 +1,1 @@
-Vasco da Gama reached India by sea in 1498, establishing a trade route to the East.
+The Treaty of Versailles, signed in 1919, formally ended World War I and imposed heavy penalties on Germany.
