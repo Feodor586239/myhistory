@@ -1,1 +1,1 @@
-The Treaty of Versailles, signed in 1919, formally ended World War I and imposed heavy penalties on Germany.
+World War I, also known as the Great War, lasted from 1914 to 1918.
