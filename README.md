@@ -1,1 +1,1 @@
-The invention of the movable-type printing press by Johannes Gutenberg around 1440 revolutionized the spread of information in Europe.
+The COVID-19 pandemic, caused by the novel coronavirus, emerged in late 2019 and led to a global health crisis.
