@@ -1,1 +1,1 @@
-The Viking explorer Leif Erikson is believed to have reached North America around the year 1000, predating Christopher Columbus.
+Shakespeare wrote his renowned play "Romeo and Juliet" around 1595.
