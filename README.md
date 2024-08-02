@@ -1,1 +1,1 @@
-The Cuban Revolution in 1959 brought Fidel Castro to power in Cuba.
+The ancient Egyptian pharaoh Tutankhamun's tomb was discovered in 1922 by archaeologist Howard Carter.
